@@ -1,5 +1,5 @@
 # 💫 About Me:
-Hello, I Am Pranshu,<br><br>I have built nmuerous games, websites, and apps <br><br><br>Some of my intrests include reading dystopia and riding my bike
+Hello, I Am Pranshu,<br><br>I have built many games, websites, and apps <br><br><br>Some of my intrests include reading dystopia and riding my bike
 
 
 ## 🌐 Socials:
