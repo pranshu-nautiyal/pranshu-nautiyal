@@ -1,5 +1,5 @@
 # 💫 About Me:
-Hello, I Am Pranshu,<br><br>Some Projects that I have Worked on include simple java and python projects like sorting <br><br><br>Some of my intrests include reading dystopia and riding my bike
+Hello, I Am Pranshu,<br><br>I have built nmuerous games, websites, and apps <br><br><br>Some of my intrests include reading dystopia and riding my bike
 
 
 ## 🌐 Socials:
