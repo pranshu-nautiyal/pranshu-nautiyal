@@ -1,5 +1,8 @@
 # 💫 About Me:
-Hello, I Am Pranshu,<br><br> I love building games, websites, and apps :) <br><br>
+IMSA Student
+Future CS major going into cybersecurity
+interested in game dev, cyber, ml, and ai
+contact me at pranshunau@gmail.com <br><br>
 
 
 ## 🌐 Socials:
